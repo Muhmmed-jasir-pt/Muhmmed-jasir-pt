@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Muhmmed-jasir-pt
 - 👀 I’m still struggling....
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on my company..
+- 💞️ I’m looking to collaborate with myself..
 - 📫 How to reach me  
 - email : jasintkl@gmail.com
 - call/whatsapp ; 7025491401
